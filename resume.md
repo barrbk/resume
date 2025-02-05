@@ -1,6 +1,5 @@
 ## Bridget Barr
 ------- 
-:mountain: :swimmer: :sun_with_face: :earth_americas:
 ###### Student at Appalachian State University 
 ###### Boone, NC, USA
 #### <ins>About Me</ins>
